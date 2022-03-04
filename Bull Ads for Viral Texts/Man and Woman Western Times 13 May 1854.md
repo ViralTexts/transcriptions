@@ -14,7 +14,7 @@ Author: na
 
 Cited source: na
 
-Page URL: link.gale.com/apps/doc/GW3219647929/BNCN?u=sfu_z39&sid=BNCN&xid=4b80eba2. Accessed 4 Apr. 2021.
+Page URL: link.gale.com/apps/doc/GW3219647929/BNCN?u=sfu_z39&sid=BNCN&xid=4b80eba2. Accessed 4 Apr. 2021.
 
 ---
 

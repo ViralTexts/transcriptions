@@ -18,9 +18,9 @@ Page URL: https://go-gale-com.ezproxy.lib.ryerson.ca/ps/i.do?p=BNCN&u=rpu_main&i
 
 ---
 
-Just Published, 12th Edition, Price 4s., and sent Free to any part of the Kingdom on receipt of a Post-office Order for 5s. 
+Just Published, 12th Edition, Price 4s., and sent Free to any part of the Kingdom on receipt of a Post-office Order for 5s.
 
-The Silent Friend: a Medical Work on the Infirmities of the Generative System in both sexes; being an inquiry into the concealed cause that destroys physical energy, and the ability of manhood, ere vigour has established her empire; with observations on the baneful effects of solitary indulgence and infection, and on the loss of the Reproductive Powers, with means of restoration. The consequences of neglected gonorrhoea, gleet, stricture, secondary symptoms, and the influence of mercury on the skin are pointed out and illustrated by engravings; followed by observations on marriage, with directions for the removal of disqualifications. By R & L Perry, and Co., Consulting Surgeons, Birmingham and Leeds. 
+The Silent Friend: a Medical Work on the Infirmities of the Generative System in both sexes; being an inquiry into the concealed cause that destroys physical energy, and the ability of manhood, ere vigour has established her empire; with observations on the baneful effects of solitary indulgence and infection, and on the loss of the Reproductive Powers, with means of restoration. The consequences of neglected gonorrhoea, gleet, stricture, secondary symptoms, and the influence of mercury on the skin are pointed out and illustrated by engravings; followed by observations on marriage, with directions for the removal of disqualifications. By R & L Perry, and Co., Consulting Surgeons, Birmingham and Leeds.
 
 Published by the Authors, and sold by Strange, 21, Paternoster-Row; Wilson, 18, Bishop-street; Parkis, Compton-street, Soho; Jackson and Co., 120, New Bond-street, London; and by J. Guest, Steelhouse-lane, Birmingham; Joseph Buckton, Bookseller, 50, Briggate, Leeds; and by all Booksellers in Town and Country.
 

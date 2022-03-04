@@ -18,8 +18,8 @@ Page URL: https://link-gale-com.ezproxy.lib.ryerson.ca/apps/doc/R3212004854/BNCN
 
 ---
 
-Just Published, Price 2s. 6d. 
-And sent free, enclosed in a sealed envelope, on receipt of a post-office order for 3s. 6d. 
+Just Published, Price 2s. 6d.
+And sent free, enclosed in a sealed envelope, on receipt of a post-office order for 3s. 6d.
 
 Manly Vigour: a Popular Inquiry into the CONCEALED CAUSES of its PREMATURE DECLINE; with Instructions for its COMPLETE RESTORATION, including a comprehensive Dissertation on Marriage, with directions for the removal of disqualifications, and remarks on the treatment of various forms of disease, Illustrated with cases, &c.
 
@@ -36,4 +36,3 @@ May be had of the authors, 60, Newman-street, Oxford-street, London; and sold by
 Messrs. Lucas & Co. are to be daily consulted from ten till two, and from five till eight in the evening, at their residence, No. 60, Newman-street, Oxford-street, London.
 
 Country Patients are required to be as minute as possible in the detail of their cases, as to the duration of the complaint; the symptoms, age, general habits of living, and occupation in life of the party. The communication must be accompanied by the usual consultation fee of 1£. Without which no notice whatever can be taken of their application; and in all cases the most invaluable secrecy may be relied on. Sold by Mr. W. Baraclough, 40, Fargate, Sheffield, by whom this work is sent Post free, in a sealed envelope, for 3s. 6d.
- 
