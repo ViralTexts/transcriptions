@@ -1,4 +1,24 @@
-﻿PRAYERS FOR LIFE
+﻿---
+
+Title: Prayers for Life
+
+transcriber: Geoff Ward
+
+Date: na
+
+Newspaper: na
+
+Location: na
+
+Author: na
+
+Cited source: na
+
+Page URL: na
+
+---
+
+PRAYERS FOR LIFE
 
 
 Remarkable Demonstration Ordered for Tuesday, May 31
